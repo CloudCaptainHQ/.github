@@ -4,7 +4,7 @@
 
 ## Introduction:
 
-Welcome aboard, Cloud Captains! 🚀 This community is a gathering ground for passionate individuals navigating the ever-evolving skies of cloud computing, DevOps, and all things tech-related.
+Welcome aboard, Cloud Captain! 🚀 This community is a gathering ground for passionate individuals navigating the ever-evolving skies of cloud computing, DevOps, and all things tech-related.
 
 ### About Us:
 
