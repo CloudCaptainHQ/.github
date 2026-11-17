@@ -30,8 +30,7 @@ Ready to set sail? Join us by simply [Follow](https://www.youtube.com/@nomadicme
 
 ### Let's Connect:
 
-- **Telegram:** [@CloudCaptain](https://t.me/CloudCaptains)
-- **Instagram:** [Cloud Captain Hub](https://www.instagram.com/cloudcaptain_/)
-- **LinkedIn:** [Cloud Captain Community](https://www.linkedin.com/groups/9510015/)
+- **Instagram:** [Cloud Captain Hub](https://www.instagram.com/cloudcaptain.ai/)
+- **LinkedIn:** [Cloud Captain Community](https://www.linkedin.com/company/cloudcaptainhq)
 
 ### Fair Winds and Following Seas, Cloud Captains! ⛅🌊
